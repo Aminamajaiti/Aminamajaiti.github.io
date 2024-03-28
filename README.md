@@ -1,1 +1,1 @@
-Majaiti.github.io
+Aminamajaiti.github.io
