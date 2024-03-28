@@ -1,0 +1,1 @@
+Majaiti.github.io
